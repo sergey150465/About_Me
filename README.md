@@ -2,4 +2,4 @@
 
 Всем привет!!!
 
-![](/Users/sergeynechaev/Desktop/6B412B87-BCB8-4914-8344-D5142EB1E47F_1_105_c.jpeg)
+![IMG_2016](https://user-images.githubusercontent.com/81350339/202117315-bb37c534-b431-4f3c-ad0c-989caeb9e43a.jpeg)
